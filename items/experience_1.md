@@ -1,1 +1,3 @@
-Experience 1 here
+Experince 1
+
+From January 2020 until June 2020, I volunteered as a tutor for second-graders, helping them with their homework and study techniques. I was able to establish deep connections with the children and significantly enhance my communication skills as a result of this experience. I can still clearly remember the priceless joy on a student's face when he finally passed a huge test after weeks of preparation after battling with math. Nonetheless, I did found it difficult to accommodate the children's different learning styles, which occasionally made it hard to provide each one with the attention they need. My overall rating for this experience would be "A."

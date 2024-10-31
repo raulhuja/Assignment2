@@ -1,1 +1,3 @@
-Experience 5 here.
+Experience 5
+
+Last but not least, I practiced speaking Romanian with friends and family. During my September 2020 to June 2021 I took Romanian classes at a school in Milton. My contacts with Romanian-speaking people have increased as a result of this experience, which also enhanced my cultural awareness and communication skills. I especially loved going on vacation to Romania and being able to communicate with my family. But sometimes, when I had trouble coming up with the correct words, I got frustrated. This encounter receives a "B." from me.

@@ -1,1 +1,3 @@
-Experience 3 here
+Experience 3 
+
+In the summer of 2018, I spent a thrilling day at Canada's Wonderland, one of Canada's largest amusement parks. The excitement started as soon as I arrived, surrounded by the sights and sounds of roller coasters and laughter. I spent the day riding various attractions, from the adrenaline-pumping Leviathan, which offered breathtaking views at the top, to the more family-friendly rides like the carousel. One of the best parts of the day was enjoying the atmosphere with friends and family. While the day was mostly enjoyable, I did find the long lines a bit frustrating at times, especially for the more popular rides. Additionally, navigating the park's layout was challenging, and we sometimes got lost trying to find our way to different attractions. Nevertheless, the overall experience was exhilarating, and I would give my day at Canada's Wonderland an "A."

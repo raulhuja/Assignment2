@@ -1,1 +1,3 @@
-Experience 2 here
+Experience 2
+
+During the summer of 2022, I had the opportunity to dog sit for a neighbor while they were on vacation. This experience involved taking care of their energetic golden retriever, Bella, for two weeks. I enjoyed the responsibility of walking her, feeding her, and ensuring she got plenty of playtime. One of the highlights was our daily trips to the park, where Bella would joyfully chase after frisbees, and I loved seeing her enthusiasm. However, there were challenges as well. Bella had a habit of being a bit too playful, which meant I sometimes struggled to keep her calm, especially when other dogs were around. Overall, despite the challenges, I cherished the time spent with Bella and would rate this experience as a solid "B." 

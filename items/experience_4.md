@@ -1,1 +1,3 @@
-Experience 4 here
+Experience 4
+
+In the summer of 2023, my family and I traveled to Paris to visit our relatives living there. From the moment we arrived, excitement filled the air as we settled into their apartment. We explored iconic landmarks like the Eiffel Tower and the Louvre, guided by our relatives who showed us their favorite local spots. However, coordinating schedules with everyone was a bit tricky, and navigating the busy streets of Paris could be overwhelming at times. Overall, the trip was enriching and filled with love, earning an "A" in my book
